@@ -3,8 +3,8 @@
   
 ![](https://komarev.com/ghpvc/?username=call-the-d0ctor&label=patients&color=lightgrey)
 
-<p style="color:Violet;">corvus/lovi any prns...</p>
+<p style="color:Violet;">corvus/lovi ♡ any prns</p>
 
-<img width="500" height="213" alt="crowonbranches" src="https://github.com/user-attachments/assets/7f4f12a4-95e3-4052-885e-3fb6d6156cac" >
-
+<img width="500" height="213" alt="crowonbranches" src="https://github.com/user-attachments/assets/7f4f12a4-95e3-4052-885e-3fb6d6156cac" > <br>
+ 
 [sign my ata!](https://drcorvus.atabook.org/)
