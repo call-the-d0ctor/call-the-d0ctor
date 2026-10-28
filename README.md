@@ -55,3 +55,12 @@ $\color{#284A41}{\textsf{terms}}$<br>
 ㅤㅤ<img src="https://files.catbox.moe/jgqv0i.png" width="~" height="110" alt="BANNER"><br>
 ㅤ<br>
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ $\color{#56723A}{\textsf{«}}$ ㅤ[atabook](https://raisethedead.atabook.org/)ㅤ $\color{#56723A}{\textsf{‧}}$ ㅤ[prns.page](https://en.pronouns.page/@lovifyy)ㅤ $\color{#56723A}{\textsf{»}}$<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
+ㅤ<br>
